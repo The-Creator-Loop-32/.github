@@ -20,7 +20,7 @@ The Creator Loop is a comprehensive program designed to help content creators, p
 
 * **Additional Resources**: Access to past webinar recordings, a follower growth course, and interactive tools like the Creator Loop Prize Wheel.
 
-[Join The Creator Loop Now](https://kelexbawz.com/creatorloop)
+[Join The Creator Loop Now](https://whop.com/creatorloop?a=kelechienwere1234)
 
 ## Pricing and Value
 
@@ -28,7 +28,7 @@ The Creator Loop is available for a one-time payment of \$997. This fee includes
 
 Compared to other programs that charge monthly fees or upsell additional services, The Creator Loop's one-time payment model offers significant value, especially considering the comprehensive resources and support provided.
 
-[Join The Creator Loop Now to Start Saving Today](https://kelexbawz.com/creatorloop)
+[Join The Creator Loop Now to Start Saving Today](https://whop.com/creatorloop?a=kelechienwere1234)
 
 ## Who Is It For?
 
@@ -52,7 +52,7 @@ Whether you're a beginner or have some experience in content creation, The Creat
 
 * **Risk-Free Investment**: With a 90-day money-back guarantee, you can try the program with confidence.
 
-[Join The Creator Loop Now to Unlock Exclusive Brand Deals](https://kelexbawz.com/creatorloop)
+[Join The Creator Loop Now to Unlock Exclusive Brand Deals](https://whop.com/creatorloop?a=kelechienwere1234)
 
 ## Potential Drawbacks
 
@@ -70,7 +70,7 @@ The Creator Loop was founded by Logan Cuffari, a seasoned expert in influencer m
 
 In the realm of affiliate marketing and content monetization, The Creator Loop stands out due to its guaranteed brand deals and comprehensive training. While other programs offer similar courses, few provide the same level of support and real opportunities to earn.
 
-[Join The Creator Loop Now to Elevate Your Content Creation](https://kelexbawz.com/creatorloop)
+[Join The Creator Loop Now to Elevate Your Content Creation](https://whop.com/creatorloop?a=kelechienwere1234)
 
 ## User Feedback
 
@@ -88,4 +88,4 @@ These testimonials underscore the program's potential to transform your content 
 
 The Creator Loop offers a comprehensive solution for content creators aiming to monetize their work and secure brand partnerships. With its in-depth training, guaranteed opportunities, and supportive community, it stands as a valuable investment for those serious about succeeding in affiliate marketing.
 
-[Join The Creator Loop Now to Transform Your Content Creation Journey](https://kelexbawz.com/creatorloop)
+[Join The Creator Loop Now to Transform Your Content Creation Journey](https://whop.com/creatorloop?a=kelechienwere1234)
